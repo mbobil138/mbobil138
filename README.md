@@ -1,4 +1,4 @@
-## Hi im Max ☄️☄
+## Hi im Max 
 
   💻 Im computer science student <br/>
   🔋 Сreative and responsible person <br/>
